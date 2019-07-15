@@ -1,6 +1,6 @@
 Je suis nul en JAVA, 
 
-GO GO
+GO GO GO
 
 going going
 HELP HELP HELP
